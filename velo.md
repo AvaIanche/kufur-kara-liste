@@ -1,0 +1,1 @@
+Bu Küfürlerin Tamamı Velo Tarafından Yazılmıştır Kullanıma Acıldı
