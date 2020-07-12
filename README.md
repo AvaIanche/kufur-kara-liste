@@ -1,1 +1,1 @@
-# kufur-kara-liste
+Türkce küfür kara liste {blacklist) 
